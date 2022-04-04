@@ -1,4 +1,4 @@
-### WELCOME 👋 I'm 郭育杭
+### WELCOME 👋
 
 > GitHub Stat
 > 
